@@ -1,1 +1,1 @@
-Projeto da semana oministack da RocketSeat >>> 
+Projeto da semana Oministack #10 da RocketSeat >>> 
